@@ -1,1 +1,1 @@
-# praktika_-chupin
+# praktika_chupin
